@@ -5,4 +5,5 @@
 - 👷‍♂️ I’m looking to collaborate on any open source/business projects you have, don't be shy, email me 😉. 
 - 💬 Ask me about traveling, food, culture, and music.
 - 📫 How to reach me: Send an email to me@hendrixroa.com or check my other network socials on https://resume.hendrixroa.com
+- 📞 Schedule a call with me: https://calendly.com/hendrixroa
 - ⚡ Fun fact: I love memes about Tech 😄
